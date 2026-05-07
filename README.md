@@ -1,0 +1,1 @@
+# SMS-MAN-Platform-Review-2026-usability-speed-and-automation-support
